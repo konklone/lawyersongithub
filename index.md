@@ -199,7 +199,7 @@ Member of the California State Bar (262511)
 
 Member of the State Bar of Illinois (some number)
 
-[@nzeltzer](https://twitter.com/nzeltzer) on Twitter.
+[@nzeltzer](https://twitter.com/nzeltzer) on Twitter. asdfasdf
 
 Founder of [LawBox](http://www.lawbox.com), purveyors of fine legal apps since 2009.
 
